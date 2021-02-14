@@ -3,8 +3,6 @@ buzna
 čumět
 čurák
 debil
-do piče
-do prdele
 dršťka
 držka
 flundra

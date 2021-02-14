@@ -1,11 +1,9 @@
 arsle
 brutta
 discofitta
-dra åt helvete
 fan
 fitta
 fittig
-för helvete
 helvete
 hård
 jävlar
@@ -32,12 +30,10 @@ rövhål
 rövknulla
 satan
 skita
-skit ner dig
 skäggbiff
 snedfitta
 snefitta
 stake
 subba
 sås
-sätta på
 tusan
